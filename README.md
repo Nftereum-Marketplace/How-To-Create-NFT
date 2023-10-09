@@ -1,4 +1,4 @@
-How To Create NFT Collection For Free On NFTereum Marketplace
+# How To Create NFT Collection For Free On NFTereum Marketplace
 
 <a href="https://nftereum.org"><img src="https://i.ibb.co/xj9Xpxn/image.jpg" alt="image" border="0"></a>
 
